@@ -5,6 +5,7 @@
 
 开车前往蒂华纳停在机场的停车场里
 
-![parking](https://user-images.githubusercontent.com/77051146/213845994-4b4e9242-97a1-42ca-850e-7a16dcb2d412.jpg)
+![parking](https://user-images.githubusercontent.com/77051146/213846061-87e3301b-9675-4fcc-84fc-de816a2e0c4e.png)
+
 
 
