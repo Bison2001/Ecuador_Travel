@@ -5,4 +5,4 @@
 
 开车前往蒂华纳停在机场的停车场里
 
-<img src="[drawing.jpg](https://user-images.githubusercontent.com/77051146/213845766-017a7ea2-85bb-4627-87bd-963c86911b2d.JPG)" alt="park_tijuana" width="200"/>
+<img src="[[drawing.jpg](https://user-images.githubusercontent.com/77051146/213845766-017a7ea2-85bb-4627-87bd-963c86911b2d.JPG)](https://user-images.githubusercontent.com/77051146/213845766-017a7ea2-85bb-4627-87bd-963c86911b2d.JPG)" alt="park_tijuana" width="200"/>
