@@ -7,6 +7,10 @@
 
 ![tijuana1](https://user-images.githubusercontent.com/77051146/213846102-537bb692-8e64-4a94-978a-8c2c072cb0ec.png)
 
+姬础在墨西哥机场吃了一桶泡面，四根烤肠，一个甜甜圈
 
+![mexico1](https://user-images.githubusercontent.com/77051146/213846128-2b487d76-b40a-4a18-926e-1b1b58c65b8a.png)
 
+我只吃了一碗泡面，一根烤肠
 
+![mexico2](https://user-images.githubusercontent.com/77051146/213846171-cd94843b-de67-40a9-a904-d4a811d0ec0d.png)
