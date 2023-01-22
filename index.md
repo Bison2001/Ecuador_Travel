@@ -66,7 +66,67 @@
 ![69dd0e5fa937c8d3f34f7176d50a5e5](https://user-images.githubusercontent.com/77051146/213896148-8d770b12-99ae-447d-b5f5-80f48a4df947.jpg)
 ![d308c09f99480dde8f4fb38a6d9ea3c](https://user-images.githubusercontent.com/77051146/213896157-00053606-282e-4a84-b62c-89c2eea0c8d7.jpg)
 
+钓完鱼回到酒店退房然后就准备前往Banos了
+
+# Banos
+Banos 在西班牙语里面是 Bath 的意思，所以有时用来代指卫生间。当然 Bath 也可以有温泉的意思，所以我们去的这个 Banos 是个地名，一个温泉小镇。理论上来讲从山上开到 BANOS 应该花三个小时以内，但由于我们规划的失误（求大家千万别周末去BANOS），以及厄瓜多尔极差的交通，我们开了极其艰苦的路程，花了接近5个小时。首先我们从山上开下来，这段是我开的，路实在是有点烂，几乎全部都是石子路，未铺装道路。开了大约1个多小时，开下来发现轮胎气压不对了，赶紧在高速附近找了一个修轮胎的地方。还好轮胎没破，补了点气就好了。
+
+National park 里虽然下着雨，但意境还是不错的
+![48147e53a1bf85ea6dbf9b44a32d40f](https://user-images.githubusercontent.com/77051146/213906370-37ef7bdc-9940-4b0d-b44d-adcde13ebf90.jpg
+![f69596f9d89c80bfc7de1cdbf5659b9](https://user-images.githubusercontent.com/77051146/213906379-6f94ad85-ce70-48b1-a1ce-f1fecaef99e8.jpg)
+
+修轮胎的大爷还算老实，工具挺齐全，看着也很专业。看我们不是本地人也没坑我们，检查一下就收了2刀不到
+![67e08dd304362b10826df082c1400ec](https://user-images.githubusercontent.com/77051146/213906392-3414877c-fd2d-4907-9cb0-942b8a9559a5.jpg)
+
+检查完实在饿的不行了，路边找家馆子把早上钓的鱼吃了，味道还不错。
+![bcfe957f92d7b8f1da8476f5e95b3a7](https://user-images.githubusercontent.com/77051146/213906424-979f6419-d699-4526-a229-1e3d3ea98b43.jpg)
+![e98958b644419665abc5584e67d482c](https://user-images.githubusercontent.com/77051146/213906426-6c74e086-e51c-4a73-b54d-6d0c1276d55e.jpg)
+
+然后开往BANOS是真的最艰难的一段。本来前往banos正常应该高速，但厄瓜多尔所谓的高速是双向两车道，根本连超车的机会都没有，一辆慢车堵一片，然后有很多莫名其妙的减速带，让车流速度变得很慢。所以Google map给我们推荐了一段小路能够绕开高速。没想到的是这条小路真的是极其挑战，几乎是修在山上的双向单车道，弯道很多，而且几乎每个弯都是视野盲区，没有什么错车空间。那一段路真的开的我呼吸都是憋着的。
+![11a304646d9b671f1f4052c006e11b8](https://user-images.githubusercontent.com/77051146/213906667-c9f64b88-059f-4a2b-acbe-f35c3f4ea481.jpg)
+
+周末到banos的车太多了，难闻的尾气，极差的交通摧毁了我们对温泉小镇所有的幻想。到了之后找了个地方做SPA，万幸这儿的spa确实爽。30刀的价格做了超过一个半小时的按摩。按完去吃了个路边的烤鸡，真的香的不行。唯一就是我们没去泡温泉，主要是人太多了，不想下饺子。但不得不说BANOS的天气真的太舒服了，不用开空调，微微的风吹着，15度的天气，让我一觉睡了接近9个小时，太爽了。
+
+这10刀一只的烤鸡绝对值，太好吃了
+![e721cfa5b5149b9ed6e72b77b224c38](https://user-images.githubusercontent.com/77051146/213906802-c6112e55-8405-4913-b440-ee9453052257.jpg)
+
+# 昆卡
+第二天开始了我们最漫长的开车之旅，从BANOS开到昆卡大约需要6个半小时，中间有不少的山路，连环弯道，还是很锻炼驾驶技术。
+
+路上吃了一家脆皮猪，那叫一个香。店里还有个会说英语的大学生，跟我们聊了一些乱七八糟的话题。
+![a2ce6879c100f91ace9d14f7b84583a](https://user-images.githubusercontent.com/77051146/213907624-0a44c241-d9c7-4bcc-9e88-bb5a562a7b26.jpg)
+
+到昆卡之后已经是晚上了，不想出去了，就在酒店吃了晚饭。第二天去昆卡市中心逛，把车停在停车场里，然后逛走。
+![c6f9ea08a51ed9a627720b15a371075](https://user-images.githubusercontent.com/77051146/213907927-7abdb9b2-68f0-452b-bb8b-6806c9115149.jpg)
+![bb5103df56b733df024ecc0471d7303](https://user-images.githubusercontent.com/77051146/213907930-e8b04dbb-c4bb-47f2-81e4-a7b2a609e273.jpg)
+![fcbe8c6742f8c332742af23b2db885c](https://user-images.githubusercontent.com/77051146/213907934-5ba91c5d-3f34-4203-9989-486436f57ab3.jpg)
+![dce6294990e2deddb4f9511f2b64496](https://user-images.githubusercontent.com/77051146/213907938-91cabb3e-8c59-45c2-8da0-9e82d4929bee.jpg)
+![8c6177a81af030bba6f66eacdadafc1](https://user-images.githubusercontent.com/77051146/213907940-9166c1f1-4bfa-4bef-a60d-2188b9691aa1.jpg)
+
+酒店吃的饭，还是蛮精致的
+![ba9c202b391d3392e64de21ba3ecc45](https://user-images.githubusercontent.com/77051146/213908626-8569ce52-3bd9-4ced-adc8-ef49354d8234.jpg)
+
+昆卡的市场
+![c27ae61a1c348c79fc1a3539bc7c7e0](https://user-images.githubusercontent.com/77051146/213908640-af725b82-f566-426a-8c94-e562b0bd13c6.jpg)
+
+
+第二天我们book了一个tripadvisory的 guided tour. 前往 caja national park. 下面是卡哈国家公园的照片。
+![abce3d66d7258bb1bdd0bf279ad9c0e](https://user-images.githubusercontent.com/77051146/213908545-5dfa8c7e-be62-4584-be9b-144b78eb4cdd.jpg)
+![c0c5ad7ca4a921be22d014ff9b0075a](https://user-images.githubusercontent.com/77051146/213908550-23039265-b7cb-4cb9-bb35-ab31b0629d1f.jpg)
+![16b78145413d7496d0928e43c48348b](https://user-images.githubusercontent.com/77051146/213908552-5172c917-4d50-4907-8283-f4689fc75fc1.jpg)
+![edc043c11b57c8d7264c2b74ad42f0d](https://user-images.githubusercontent.com/77051146/213908557-aad1eace-fb71-492f-9d37-6d335b5cc58e.jpg)
+![d731a94416779a7889de941d5a08bbf](https://user-images.githubusercontent.com/77051146/213908564-06dd2a94-53cc-470b-bc97-112c6be395e7.jpg)
+![378cc0970cd85d32a0b77a86459a407](https://user-images.githubusercontent.com/77051146/213908571-84ce3da0-7486-47ad-9c42-b93cb68ef01c.jpg)
+![5114863e2606b18585e2db01c2a2541](https://user-images.githubusercontent.com/77051146/213909052-9393a9cb-7438-4b01-9a61-ce188a21eac0.jpg)
+![2d44bc63bad71d7925449944125ce9a](https://user-images.githubusercontent.com/77051146/213909054-d3c9cbd0-1d21-4e4a-b4ab-81af98d620db.jpg)
+![e93c515c72597d56123aaaa88d5f8f9](https://user-images.githubusercontent.com/77051146/213909059-42186df9-e5ee-465c-9e32-5f6c887d2f35.jpg)
+![c577aff1f9104d89dc2f85d4893036e](https://user-images.githubusercontent.com/77051146/213909062-5839ac48-6cdb-4df9-8982-67067bff8e40.jpg)
+![be1f81ad1c2104a7e04bd501c0ab7e2](https://user-images.githubusercontent.com/77051146/213909065-aa65cf46-129a-49cd-8519-8a0a02d8cddf.jpg)
+![8d70be19c2ed6573e872b9d6c8c2998](https://user-images.githubusercontent.com/77051146/213909069-86ab15ff-c45e-4edf-aeac-ee954dc45247.jpg)
+
+
 # 未完待续
+
 
 
 
