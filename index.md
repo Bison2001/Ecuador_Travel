@@ -72,7 +72,7 @@
 Banos 在西班牙语里面是 Bath 的意思，所以有时用来代指卫生间。当然 Bath 也可以有温泉的意思，所以我们去的这个 Banos 是个地名，一个温泉小镇。理论上来讲从山上开到 BANOS 应该花三个小时以内，但由于我们规划的失误（求大家千万别周末去BANOS），以及厄瓜多尔极差的交通，我们开了极其艰苦的路程，花了接近5个小时。首先我们从山上开下来，这段是我开的，路实在是有点烂，几乎全部都是石子路，未铺装道路。开了大约1个多小时，开下来发现轮胎气压不对了，赶紧在高速附近找了一个修轮胎的地方。还好轮胎没破，补了点气就好了。
 
 National park 里虽然下着雨，但意境还是不错的
-![48147e53a1bf85ea6dbf9b44a32d40f](https://user-images.githubusercontent.com/77051146/213906370-37ef7bdc-9940-4b0d-b44d-adcde13ebf90.jpg
+![48147e53a1bf85ea6dbf9b44a32d40f](https://user-images.githubusercontent.com/77051146/213906370-37ef7bdc-9940-4b0d-b44d-adcde13ebf90.jpg)
 ![f69596f9d89c80bfc7de1cdbf5659b9](https://user-images.githubusercontent.com/77051146/213906379-6f94ad85-ce70-48b1-a1ce-f1fecaef99e8.jpg)
 
 修轮胎的大爷还算老实，工具挺齐全，看着也很专业。看我们不是本地人也没坑我们，检查一下就收了2刀不到
@@ -93,7 +93,7 @@ National park 里虽然下着雨，但意境还是不错的
 # 昆卡
 第二天开始了我们最漫长的开车之旅，从BANOS开到昆卡大约需要6个半小时，中间有不少的山路，连环弯道，还是很锻炼驾驶技术。
 
-路上吃了一家脆皮猪，那叫一个香。店里还有个会说英语的大学生，跟我们聊了一些乱七八糟的话题。
+路上吃了一家脆皮猪，那叫一个香。店里还有个会说英语的大学生，跟我们聊了一些乱七八糟的话题。他说还好我们没去瓜亚基尔，现在瓜亚基尔非常乱，我们去了可能会死。
 ![a2ce6879c100f91ace9d14f7b84583a](https://user-images.githubusercontent.com/77051146/213907624-0a44c241-d9c7-4bcc-9e88-bb5a562a7b26.jpg)
 
 到昆卡之后已经是晚上了，不想出去了，就在酒店吃了晚饭。第二天去昆卡市中心逛，把车停在停车场里，然后逛走。
@@ -106,11 +106,11 @@ National park 里虽然下着雨，但意境还是不错的
 酒店吃的饭，还是蛮精致的
 ![ba9c202b391d3392e64de21ba3ecc45](https://user-images.githubusercontent.com/77051146/213908626-8569ce52-3bd9-4ced-adc8-ef49354d8234.jpg)
 
-昆卡的市场
+昆卡的市场。厄瓜多尔的市场叫做 Mercado， 里面一楼一般卖各种肉制品，二楼有卖蔬菜的，卖果汁的，和卖小吃的摊子。昆卡的 Mercado 卖的食物基本上就是猪肉，由此也可以看出厄瓜多尔的食物每个地方都很有独特性。在基多的时候我们便没有看见这么多卖猪肉的地方。当然提到 Mercado就需要与厄瓜多尔的超市 supermaxi做对比。Supermaxi 这种大超市卖的很多零食，日常用品都是进口货，价格相当昂贵，我们当时就买了一点零食和牙刷就花了接近40刀。对比起来厄瓜多尔平均500刀的月薪，supermaxi简直没法消费。
 ![c27ae61a1c348c79fc1a3539bc7c7e0](https://user-images.githubusercontent.com/77051146/213908640-af725b82-f566-426a-8c94-e562b0bd13c6.jpg)
 
 
-第二天我们book了一个tripadvisory的 guided tour. 前往 caja national park. 下面是卡哈国家公园的照片。
+第二天我们book了一个tripadvisory的 guided tour. 前往 caja national park. 下面是卡哈国家公园的照片。据说当时的 Inca trail 穿过卡哈国家公园连接了雨林和海边。
 ![abce3d66d7258bb1bdd0bf279ad9c0e](https://user-images.githubusercontent.com/77051146/213908545-5dfa8c7e-be62-4584-be9b-144b78eb4cdd.jpg)
 ![c0c5ad7ca4a921be22d014ff9b0075a](https://user-images.githubusercontent.com/77051146/213908550-23039265-b7cb-4cb9-bb35-ab31b0629d1f.jpg)
 ![16b78145413d7496d0928e43c48348b](https://user-images.githubusercontent.com/77051146/213908552-5172c917-4d50-4907-8283-f4689fc75fc1.jpg)
@@ -124,10 +124,40 @@ National park 里虽然下着雨，但意境还是不错的
 ![be1f81ad1c2104a7e04bd501c0ab7e2](https://user-images.githubusercontent.com/77051146/213909065-aa65cf46-129a-49cd-8519-8a0a02d8cddf.jpg)
 ![8d70be19c2ed6573e872b9d6c8c2998](https://user-images.githubusercontent.com/77051146/213909069-86ab15ff-c45e-4edf-aeac-ee954dc45247.jpg)
 
+从卡拉国家公园回来已经是下午了，我们去昆卡当地找了个泡温泉按摩的地方，享受了一下之后就去机场还车然后飞回基多了。
 
-# 未完待续
+# 再到基多
+我们行程的最后一天便是在基多度过的了。基多的机场酒店相当的棒，服务，食物，房间都是一流。我们白天去了基多有名的赤道纪念碑。赤道纪念碑在基多北部，离市中心和机场都还是蛮远的，需要差不多40分钟的车程。顺便说一下，这边可以用嘀嘀打车，还比uber便宜一点。
+![fdc66bd6fdfdbe17bac558197bd1019](https://user-images.githubusercontent.com/77051146/214501522-4830de44-67c3-429a-8b70-234113114f3f.jpg)
+![3c099107a84c5972bb75e196beccceb](https://user-images.githubusercontent.com/77051146/214501545-d26bd909-2b8c-47b8-957a-90ab5c09e263.jpg)
+
+在纪念碑上俯瞰基多。赤道纪念碑是要收门票的。
+![89d2e69bac6fe83a5d71c22af9651a0](https://user-images.githubusercontent.com/77051146/214501571-f4a6872c-4321-4de6-843f-c57b2331ffa3.jpg)
+
+赤道纪念碑大门出去之后沿着路一直往左走可以找到一个吃 guinea pig （荷兰猪）的地方，有点小贵，但味道是还挺不错的，尝尝鲜嘛。
+![84be524d0be215920049ad0b6d3e08b](https://user-images.githubusercontent.com/77051146/214502061-c24553cb-d932-437f-b14d-662bb5d3f281.jpg)
+![622eb37c12ae2033bdb3d32cd237ef9](https://user-images.githubusercontent.com/77051146/214502075-a38e53ef-e3de-4b51-af0f-9559cab79d82.jpg)
+
+吃完豚鼠就准备回酒店赶飞机啦。
+
+# 归程
+晚上从基多飞利马，凌晨从利马飞墨西哥城，第二天下午从墨西哥城飞蒂华纳。从蒂华纳开回圣迭戈已经是晚上9点了。下面是一路上随手拍的地球。
+![3088e12bfa8b42acd18abf1a3143df3](https://user-images.githubusercontent.com/77051146/214505521-437fa827-4bc8-42d0-a64d-19d84a8d8339.jpg)
+![ba3ca8647d642a75e37684dd1d34816](https://user-images.githubusercontent.com/77051146/214505538-fa3c892c-25f7-4339-ae39-f9c59835971e.jpg)
+![e22abf6644cf6354b57966f3d0ab30c](https://user-images.githubusercontent.com/77051146/214505547-015f1a1f-cb6f-411a-9a4a-01d1a4aa982b.jpg)
+![a8951bcb99f43699c28b3aab11ccf42](https://user-images.githubusercontent.com/77051146/214505572-2251000f-5405-4859-b2b8-f58b82d8500a.jpg)
+![d999e6d9e4b5cd77c9b43b3af9259b7](https://user-images.githubusercontent.com/77051146/214505583-0480fe17-59b8-4517-a39b-d9630d5e1e8d.jpg)
 
 
+# 闲谈
+* 从加州出发去厄瓜多尔的话可以从德州或者Florida转机，要快很多
+* 用Att的premium plan可以直接免费在拉丁美洲漫游
+* 厄瓜多尔用美金，并且用很多硬币，可以多带1美金的硬币
+* 厄瓜多尔除了上述所列，还有雨林和加拉帕戈斯群岛值得一看
+* 中国护照出入境厄瓜多尔都被查得很严
+* 墨西哥查我们也比较仔细，秘鲁没有查我们
+* 厄瓜多尔说西班牙语，且拉美各地的西班牙语还有些不一样
+* Google map的导航可能时间不会很准
 
 
 
